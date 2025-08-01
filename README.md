@@ -13,3 +13,15 @@ Name : **Balkaran singh** , Branch : **cs**
 - She welcomed the students heartfully and encourage students to began their journey with discipline, mannerfully and passion.
 ### **Dr. Akshay Giddar**
 - Sir guided the students about academics, infrastructure and culture. He guided students to seize every opportunity as it helps us to visualize things , grow leadership qualities , technical activites and field of academy.
+### **Harleen kaur grewal** (CS Department)
+- She was very cheerful and enthusiastic first year student, inspired the students with her heartwarming speech.
+### **Dr. Parminder Singh** (Dean Student Welfare)
+Sir's real world experiences and insights added immense value to the auditorium and spread positivity.
+### **Dr. Sehajpal Singh** (Principal of GNDEC)
+- The programme reached its peak with the presence of sir. His inspiring words have motivated us to strive for excellence . His presence added immense value to our induction programme .
+### **Shri Ravinder Garg** ( Chief Engineer, Municipal Corporation , LDH)
+- The Program reached its peak with the presence of Sir. His presence has elevated the spirit of our event . His words of wisdom have inspired us to pursue our passions.
+### **Mr. Rakesh Kumar** (Deputy commissioner , LDH)
+Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared his journey that inspires all the students . ALL were very pleased by his presence.
+### **Shri Ashok Singla** (Financial Administrator)
+- Sir provide us very vast information about education loan which will helps the students a lot . Sirs's presence has added immense value to our event. He made a long lasting impact on the students.
