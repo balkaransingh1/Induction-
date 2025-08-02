@@ -30,5 +30,16 @@ Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared 
 
 
 # **Day 2**
-# *English and Maths Proficiency test ( 9:30 to 11:30 AM)
-- 
+# *English and Maths Proficiency test* ( 9:30 to 11:30 AM)
+- In the beginning of day 2 , institute conduct our english proficiency test of English from 9:30 to 10:30 . After that we also give the proficiency test of maths from 10:30 to 11:30. After both the proficiency test we got a break from 11:30 AM to 1:00 PM.
+# *About SATYA SCHOLARSHIP PROGRAM 2K25 in Auditorium (1:30 to 2:30 PM)*
+- In this session we got to know about Satya Scholarship Program 2025 . It is a scholarship program that designed to empower praiseworthy students, speacially fcousing girls to enable them to continue their studies. It will be very helpful for the students who are unable to pay their fees and struggling hard to pay their fees. The scholarship team explains the registration process and eligibility criteria very evidently to all of us.
+# *Lecture on "Food: A Pivotal Role in Student's Overall Wellness" in Auditorium (2:30 to 3:30 PM)*
+### **EXPERT : Dr. Arashdeep Singh**
+- After Satya scholarship Program, we got an expert lecture by Dr. Arashdeep Singh on above mentioned topic. Sir gave us very good lecture that we shoud maintain our diet and eat that make our body fit and healthy. He advised us to consume as much as less sugar as we can because it is very harmful for our health. He also suggest us some food to maintain our good health. Because a well nourished body and mind are essential for achieving academic and personal goals. 
+## *About Github (3:30 to 4:30 PM)*
+- After the lecture of Dr. Arashdeep Singh, Our seniors explains very evidently about Github and how to use it. They all were very welcoming and heartwarming. They explains and make us understand that how can we make our presentation about induction on github.
+# *End of Day 2*
+- The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerizing . I am hoping that upcoming days will be more imformative and i am  also excited about more interactive sessions.
+  
+
