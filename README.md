@@ -1,8 +1,8 @@
-# Induction
+# Induction Programme 2025
 Name : **Balkaran singh** , Branch : **cs**
 # **Day 1**
 # *Gurudwara sahib* (8:30 to 9:30 AM)
-- In the beginning of our induction program 2025, we went to gurudwara sahib at 8:30 AM and take blessings from God. Then we listen Japji sahib Path and then we mesmerize the heartwarming shabads recited by kirtani jatha. Then we enjoy tea and snacks provided by institution.
+- In the beginning of our induction program 2025, we went to gurudwara sahib at 8:30 AM and take blessings from God. Then we listen Japji sahib Path and then we mesmerize the heartwarming shabads recited by kirtani jatha. After that  we enjoy tea and snacks provided by institution.
 # *Inauguration of Induction Programme in Auditorium Hall* (10:00 AM onwards)
 ###  **Mr. Harsimran Singh Jaggi**
 - He address the session and introduced the students to essence,legacy, strenth and vision of GNDEC . He explains the students about the academic excellence, wide range of facilities, research technology, and wide range of activities that GNDEC offers.
@@ -25,3 +25,10 @@ Sir's real world experiences and insights added immense value to the auditorium 
 Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared his journey that inspires all the students . ALL were very pleased by his presence.
 ### **Shri Ashok Singla** (Financial Administrator)
 - Sir provide us very vast information about education loan which will helps the students a lot . Sirs's presence has added immense value to our event. He made a long lasting impact on the students.
+# *End Of Day 1*
+- The Day 1 of induction programme came to an end. The day was filled with valuable insights, interactive sessions, and engaging activities that helped smoothly transition into college life. As we departed , we felt more confident and excited for journey ahead.
+
+
+# **Day 2**
+# *English and Maths Proficiency test ( 9:30 to 11:30 AM)
+- 
