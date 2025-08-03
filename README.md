@@ -1,5 +1,5 @@
 # Induction Programme 2025
-Name : **Balkaran singh** , Branch : **cs**
+Name : **Balkaran singh** , Branch : **cse**
 # **Day 1**
 # *Gurudwara sahib* (8:30 to 9:30 AM)
 - In the beginning of our induction program 2025, we went to gurudwara sahib at 8:30 AM and take blessings from God. Then we listen Japji sahib Path and then we mesmerize the heartwarming shabads recited by kirtani jatha. After that  we enjoy tea and snacks provided by institution.
@@ -16,13 +16,13 @@ Name : **Balkaran singh** , Branch : **cs**
 ### **Harleen kaur grewal** (CS Department)
 - She was very cheerful and enthusiastic first year student, inspired the students with her heartwarming speech.
 ### **Dr. Parminder Singh** (Dean Student Welfare)
-Sir's real world experiences and insights added immense value to the auditorium and spread positivity.
+- Sir's real world experiences and insights added immense value to the auditorium and spread positivity.
 ### **Dr. Sehajpal Singh** (Principal of GNDEC)
 - The programme reached its peak with the presence of sir. His inspiring words have motivated us to strive for excellence . His presence added immense value to our induction programme .
 ### **Shri Ravinder Garg** ( Chief Engineer, Municipal Corporation , LDH)
 - The Program reached its peak with the presence of Sir. His presence has elevated the spirit of our event . His words of wisdom have inspired us to pursue our passions.
 ### **Mr. Rakesh Kumar** (Deputy commissioner , LDH)
-Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared his journey that inspires all the students . ALL were very pleased by his presence.
+- Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared his journey that inspires all the students . ALL were very pleased by his presence.
 ### **Shri Ashok Singla** (Financial Administrator)
 - Sir provide us very vast information about education loan which will helps the students a lot . Sirs's presence has added immense value to our event. He made a long lasting impact on the students.
 # *End Of Day 1*
@@ -40,6 +40,20 @@ Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared 
 ## *About Github (3:30 to 4:30 PM)*
 - After the lecture of Dr. Arashdeep Singh, Our seniors explains very evidently about Github and how to use it. They all were very welcoming and heartwarming. They explains and make us understand that how can we make our presentation about induction on github.
 # *End of Day 2*
-- The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerizing . I am hoping that upcoming days will be more imformative and i am  also excited about more interactive sessions.
-  
+- The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerising . I am hoping that upcoming days will be more imformative and i am  also excited about more interactive sessions.
 
+
+# **Day 3**
+# *Expert Lecture by Dr.Jaswinder Singh ( Incharge - IAPT ) in Auditorium (9:00 to 11:00 AM)*
+- In the beginning of day 3 , an expert lecture is conducted for us by Dr. Jaswinder Singh in Auditorium. Sir is Lecturer in Physics, Ex-Incharge Circle Inspection Team Punjab, Ex-Asstt.State Project Director (Science)Punjab.
+- **State Awarded by Govt. of Punjab**                     
+- **Shiksha Awarded by Govt. of Punjab**
+- **Governor Awarded by Govt. of Punjab**
+- **National Awardee and Malti Gyan Peeth Puraskar by Hon'ble President of India and for Popularizing Science by Govt. of India**
+- **Asian Excellence Award 2022( Between 9 Countries)**
+- The whole session was very fantastic and mesmerising. W get a lot of information by sir expertise. Sir do a  lot of interesting experiments related to Physics. we get to know about very interesting facts and tricks related to mathematics in our daily life in very evident manner. Sir get us to know about history related to mathematics that every part of our life is related to mathematics . Sir shared his journey that how he started from repairing stoves to a person receiving so much respect and achievements in his life , that motivates sitting all of us in auditorium.
+# *Expert Lecture by Dr.Priya Darshni Madam on "UNIVERSAL HUMAN VALUES" in Auditorium(11:00 AM to 1:00 PM)*
+- After the session of Dr.Jaswinder Singh , we got another expert lecture by Dr.Priya Darshni . She was very welcoming and heartwarming. Mam explains us about Aspirations and Concerns , understanding basic aspirations, multiple ways to fulfil our basic aspirations. In this session, we want to explore into two questions: Are happiness and prosperity really our basic aspiration and what is needed to fulfil these aspirations. The whole session was very warm and informative about our daily life.
+# *End of Day 3*
+- The Day 3 of induction programme came to an end. The day was very excited and as well as informative. I enjoyed the session by Dr.Jaswinder Singh the most. The session by Dr.Priya Darshni mam is also very interesting and informative. I enjoyed Day 3 as much as last two days.
+  
