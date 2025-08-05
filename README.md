@@ -56,4 +56,7 @@ Name : **Balkaran singh** , Branch : **cse**
 - After the session of Dr.Jaswinder Singh , we got another expert lecture by Dr.Priya Darshni . She was very welcoming and heartwarming. Mam explains us about Aspirations and Concerns , understanding basic aspirations, multiple ways to fulfil our basic aspirations. In this session, we want to explore into two questions: Are happiness and prosperity really our basic aspiration and what is needed to fulfil these aspirations. The whole session was very warm and informative about our daily life.
 # *End of Day 3*
 - The Day 3 of induction programme came to an end. The day was very excited and as well as informative. I enjoyed the session by Dr.Jaswinder Singh the most. The session by Dr.Priya Darshni mam is also very interesting and informative. I enjoyed Day 3 as much as last two days.
+# **Day 4**
+- In the last 3 days , we have our first class of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming . They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
+- After that , we have our BEEE lecture from 10:30 AM to 11:30 AM by Prof.Harminder Kaur. I was much very impressed by the nature of mam . She take our introduction one by one . I enjoyed that one hour very much. After that we got an break of one hour.
   
