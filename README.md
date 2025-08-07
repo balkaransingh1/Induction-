@@ -61,13 +61,24 @@ Name : **Balkaran singh** , Branch : **cse**
 
 
 # **Day 4**
-- In the last 3 days , we have our first class of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming .                   They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
+- In the last 3 days , we had our first class today of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming .                   They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
 - After that , we have our BEEE lecture from 10:30 AM to 11:30 AM by Prof.Harminder Kaur. I was much very impressed by the nature of mam .                                             She take our introduction one by one . I enjoyed that one hour very much. After that we got an break of one hour.
 # *Expert Lecture by Dr.Priya Darshani Madam on "UNIVERSAL HUMAN VALUES 2" in Auditorium( 12:30 to 2:30 PM)* 
 - After our lunch break we all gathered in Auditorium for another lecture by Dr.Priya Darshani mam on Universal Human Values. Her words reminded us of the importance of empathy,respect, and integrity in our daily lives. Thank you once again mam for enlightening us and helping us grow not just as students, but as human beings.
-# * Session by Causmic Club*
+# *Session by Causmic Club*
 - After that, we get to know about causmic club , by the members of club own . Their dedication , creativity , enthusiasm have brought energy to auditorium . I was very much impressed by the club and excited and hoping to part of that club.
 # *End of Day 4*
 - The Day 4 came to an end. Today I learnt many things like how to make program in c++ . I enjoyed the today's second lecture of UHV as much as first lecture . The most excited and amazing part of today's is session by causmic club.
 
-  
+
+# **Day 5**
+# *ID CARD Formation*
+- On the day 5 , CSE-A Student have their ID card formation from 9:00 AM to 12:00 PM. On the other hand, other sections students have their P2P , Maths, Chemistry , English lectures from 9:30 AM to 12:30 PM. After CSE-B student have their ID card formation from 2:00 PM to 4:00 PM.
+- I only had my ID card formation today, so I had a lot of time and decided to visit the campus . I went to the unexplored places like sports complex, central library , workshops and many more. I enjoyed very much today and dismissed very early.
+
+# **Day 6**
+- In the beginning of Day 6 , we had our first class of chemistry by Prof.Karan Bhalla from 9:30 AM to 10:30 AM. The energy of sir is very amazing and wonderful . He took our introduction one by one very sweetly . He was very welcoming and sweet. He told us about curriculum and distribution of marks in exams . He teaches us chemistry also in a very good manner. It was my favourite class till date of my college joining.
+- After the class of chemistry we have our next class of English by Prof.Nisha from 10:30 AM to 11:30 AM . AFter entering the class , she gave her introduction to us very nicely. After that , she done a activity with us to come on front and introduce our self for atleast 30 seconds. It was fun to watch because I didn't get chance to introduce my self due to shortage of time. But due to this activity I get to know more about my classmates.
+- After that we got a break from 11:30 to 12:30 AM.
+# *Lecture by Dr. Lakhvir Singh Khana ( Incharge CML) in Auditorium* 
+
