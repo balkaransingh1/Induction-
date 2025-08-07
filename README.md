@@ -25,6 +25,7 @@ Name : **Balkaran singh** , Branch : **cse**
 - Sir was a alumni of the 1991 batch and currently the ADC , Ludhiana . He shared his journey that inspires all the students . ALL were very pleased by his presence.
 ### **Shri Ashok Singla** (Financial Administrator)
 - Sir provide us very vast information about education loan which will helps the students a lot . Sirs's presence has added immense value to our event. He made a long lasting impact on the students.
+# *Visit of  Department*
 - After the session of all honourable speakers , we went to our classes . The teachers were very heartwarming and welcoming . They told us many things about college curriculum . After that , we went to visit labs , library , science labs and many more. I was very much impressed by everything . After all the visits, we got dismissed.
 # *End Of Day 1*
 - The Day 1 of induction programme came to an end. The day was filled with valuable insights, interactive sessions, and engaging activities that helped smoothly transition into college life. As we departed , we felt more confident and excited for journey ahead.
