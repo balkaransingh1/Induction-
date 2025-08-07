@@ -56,7 +56,16 @@ Name : **Balkaran singh** , Branch : **cse**
 - After the session of Dr.Jaswinder Singh , we got another expert lecture by Dr.Priya Darshni . She was very welcoming and heartwarming. Mam explains us about Aspirations and Concerns , understanding basic aspirations, multiple ways to fulfil our basic aspirations. In this session, we want to explore into two questions: Are happiness and prosperity really our basic aspiration and what is needed to fulfil these aspirations. The whole session was very warm and informative about our daily life.
 # *End of Day 3*
 - The Day 3 of induction programme came to an end. The day was very excited and as well as informative. I enjoyed the session by Dr.Jaswinder Singh the most. The session by Dr.Priya Darshni mam is also very interesting and informative. I enjoyed Day 3 as much as last two days.
+
+
 # **Day 4**
-- In the last 3 days , we have our first class of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming . They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
-- After that , we have our BEEE lecture from 10:30 AM to 11:30 AM by Prof.Harminder Kaur. I was much very impressed by the nature of mam . She take our introduction one by one . I enjoyed that one hour very much. After that we got an break of one hour.
+- In the last 3 days , we have our first class of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming .                   They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
+- After that , we have our BEEE lecture from 10:30 AM to 11:30 AM by Prof.Harminder Kaur. I was much very impressed by the nature of mam .                                             She take our introduction one by one . I enjoyed that one hour very much. After that we got an break of one hour.
+# *Expert Lecture by Dr.Priya Darshani Madam on "UNIVERSAL HUMAN VALUES 2" in Auditorium( 12:30 to 2:30 PM)* 
+- After our lunch break we all gathered in Auditorium for another lecture by Dr.Priya Darshani mam on Universal Human Values. Her words reminded us of the importance of empathy,respect, and integrity in our daily lives. Thank you once again mam for enlightening us and helping us grow not just as students, but as human beings.
+# * Session by Causmic Club*
+- After that, we get to know about causmic club , by the members of club own . Their dedication , creativity , enthusiasm have brought energy to auditorium . I was very much impressed by the club and excited and hoping to part of that club.
+# *End of Day 4*
+- The Day 4 came to an end. Today I learnt many things like how to make program in c++ . I enjoyed the today's second lecture of UHV as much as first lecture . The most excited and amazing part of today's is session by causmic club.
+
   
