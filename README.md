@@ -80,5 +80,5 @@ Name : **Balkaran singh** , Branch : **cse**
 - In the beginning of Day 6 , we had our first class of chemistry by Prof.Karan Bhalla from 9:30 AM to 10:30 AM. The energy of sir is very amazing and wonderful . He took our introduction one by one very sweetly . He was very welcoming and sweet. He told us about curriculum and distribution of marks in exams . He teaches us chemistry also in a very good manner. It was my favourite class till date of my college joining.
 - After the class of chemistry we have our next class of English by Prof.Nisha from 10:30 AM to 11:30 AM . AFter entering the class , she gave her introduction to us very nicely. After that , she done a activity with us to come on front and introduce our self for atleast 30 seconds. It was fun to watch because I didn't get chance to introduce my self due to shortage of time. But due to this activity I get to know more about my classmates.
 - After that we got a break from 11:30 to 12:30 AM.
-# *Lecture by Dr. Lakhvir Singh Khana ( Incharge CML) in Auditorium* 
+
 
