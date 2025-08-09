@@ -80,5 +80,13 @@ Name : **Balkaran singh** , Branch : **cse**
 - In the beginning of Day 6 , we had our first class of chemistry by Prof.Karan Bhalla from 9:30 AM to 10:30 AM. The energy of sir is very amazing and wonderful . He took our introduction one by one very sweetly . He was very welcoming and sweet. He told us about curriculum and distribution of marks in exams . He teaches us chemistry also in a very good manner. It was my favourite class till date of my college joining.
 - After the class of chemistry we have our next class of English by Prof.Nisha from 10:30 AM to 11:30 AM . AFter entering the class , she gave her introduction to us very nicely. After that , she done a activity with us to come on front and introduce our self for atleast 30 seconds. It was fun to watch because I didn't get chance to introduce my self due to shortage of time. But due to this activity I get to know more about my classmates.
 - After that we got a break from 11:30 to 12:30 AM.
+# *Lecture by Sardar Gurcharan Singh Grewal*
+- Sir was also a student of GNDEC . He shared his beautiful journey with us how he get admission in this college. He welcomed all of us in the college . I was very much impressed by his energy . He added immense love in the session . His remarkable journey motivates every one of us sitting in the auditorium .
+# *Lecture by Dr.Lakhvir Singh Khana( Incharge CML)*
+- After the session of Sardar Gurcharan Singh Ji Grewal , we got an expert lecture by Dr.Lakhvir Singh Khana . He addressed us about Swayam and NPTEL courses. He gave us information regarding how we can do a course on Swayam with no cost along with our B-tech course.
+# *Lecture by Arvind Dhingra (Director-STEP and Incharge-TAC)*
+- Afetr the session Dr.Lakhvir Singh Khana , we got an energetic session by Dr.Arvind Dhingra. Due to shortage of time we cant't got an lecture by him . But sir promised us to give us lecture on any another day.
+# *End of Day 6*
+- The day was full of new information , excitement and energy . I enjoyed my chemistry class very much . The session by Sardar Gurcharan Singh Grewal is very amazing . We got highly motivated by that session.
 
 
