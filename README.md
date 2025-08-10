@@ -103,5 +103,13 @@ Name : **Balkaran singh** , Branch : **cse**
 # *Lecture by Dr.Amit Kamra (Incharge DMC)
 - At 9:30 AM we had our first lecture about Digital Marketing Club by Dr.Amit Kamra . He is incharge of DMC club. He explained us about his club . He shared his journey with us that how he had created the official page of GNDEC on instagram , facebook ,youtube . He also aware us about the importance of Digital Marketing in today's world. He gave us a task to make a video of college and best three videos will be awarded. He also showed us some videos made by the members of DMC club.
 # *Lecture by Dr.Parminder Singh (Dean Student Welfare)
+- After the Lecture of Dr.Amit Kamra we got an expert lecture by Dr.Parminder Singh. He gave us information regarding academics. He  guided the students about academics, infrastructure and culture. He guided us to seize every opportunity as it helps us to visualize things , grow leadership qualities , technical activites and field of academy.
+# *Lecture by Dr.Randhir Singh*
+- After the lecture of Dr.Parminder Singh , Dr.Randhir Singh guided us about Conduct of Examination . He addressed us about internal and external marks . He made us go through to GNDEC academic portal. He also guided us about the importance of attendance.
+- After all three lectures we got a break from 12:30 to 1:30 PM.
+# *BEEE Lecture and Maths Lecture*
+- After the break , we attend our BEEE lecture from 1:30PM to 2:30PM . It was my second BEE class . Mam stared our first unit of BEEE . I understand every thing tought by her . She teaches very well . The lecture over at 2:30 PM. After the lecture of BEEE , we go to our class to attend maths lecture . But due to absence of mam our seniors take our lecture . They taken our introduction . The whole one hour was very fun . I enjoyed that 1 hour the most till my first day of college. After that , we dismissed.
+# *End od Day 7*
+- I ended the day with full enjoyment . My first and last lecture of today's are favourite . I get to gain a lot of information today as well . Each day coming with a lot of excitement and information . I hope that I will enjoy the upcoming days as well.
 
 
