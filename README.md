@@ -1,5 +1,6 @@
 # Induction Programme 2025
 Name : **Balkaran singh** , Branch : **cse**
+
 # **Day 1**
 # *Gurudwara sahib* (8:30 to 9:30 AM)
 - In the beginning of our induction program 2025, we went to gurudwara sahib at 8:30 AM and take blessings from God. Then we listen Japji sahib Path and then we mesmerize the heartwarming shabads recited by kirtani jatha. After that  we enjoy tea and snacks provided by institution.
@@ -31,6 +32,7 @@ Name : **Balkaran singh** , Branch : **cse**
 - The Day 1 of induction programme came to an end. The day was filled with valuable insights, interactive sessions, and engaging activities that helped smoothly transition into college life. As we departed , we felt more confident and excited for journey ahead.
 
 
+
 # **Day 2**
 # *English and Maths Proficiency test* ( 9:30 to 11:30 AM)
 - In the beginning of day 2 , institute conduct our english proficiency test of English from 9:30 to 10:30 . After that we also give the proficiency test of maths from 10:30 to 11:30. After both the proficiency test we got a break from 11:30 AM to 1:00 PM.
@@ -43,6 +45,7 @@ Name : **Balkaran singh** , Branch : **cse**
 - After the lecture of Dr. Arashdeep Singh, Our seniors explains very evidently about Github and how to use it. They all were very welcoming and heartwarming. They explains and make us understand that how can we make our presentation about induction on github.
 # *End of Day 2*
 - The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerising . I am hoping that upcoming days will be more imformative and i am  also excited about more interactive sessions.
+
 
 
 # **Day 3**
@@ -60,6 +63,7 @@ Name : **Balkaran singh** , Branch : **cse**
 - The Day 3 of induction programme came to an end. The day was very excited and as well as informative. I enjoyed the session by Dr.Jaswinder Singh the most. The session by Dr.Priya Darshni mam is also very interesting and informative. I enjoyed Day 3 as much as last two days.
 
 
+
 # **Day 4**
 - In the last 3 days , we had our first class today of P2P from 9:30 AM to 10:30 AM . Two Student of D1 and D3 took our class. They both were very sweet and welcoming .                   They taught us about programming language C++ . I enjoyed and learnt very new things from this class.
 - After that , we have our BEEE lecture from 10:30 AM to 11:30 AM by Prof.Harminder Kaur. I was much very impressed by the nature of mam .                                             She take our introduction one by one . I enjoyed that one hour very much. After that we got an break of one hour.
@@ -71,10 +75,13 @@ Name : **Balkaran singh** , Branch : **cse**
 - The Day 4 came to an end. Today I learnt many things like how to make program in c++ . I enjoyed the today's second lecture of UHV as much as first lecture . The most excited and amazing part of today's is session by causmic club.
 
 
+
 # **Day 5**
 # *ID CARD Formation*
 - On the day 5 , CSE-A Student have their ID card formation from 9:00 AM to 12:00 PM. On the other hand, other sections students have their P2P , Maths, Chemistry , English lectures from 9:30 AM to 12:30 PM. After CSE-B student have their ID card formation from 2:00 PM to 4:00 PM.
 - I only had my ID card formation today, so I had a lot of time and decided to visit the campus . I went to the unexplored places like sports complex, central library , workshops and many more. I enjoyed very much today and dismissed very early.
+
+
 
 # **Day 6**
 - In the beginning of Day 6 , we had our first class of chemistry by Prof.Karan Bhalla from 9:30 AM to 10:30 AM. The energy of sir is very amazing and wonderful . He took our introduction one by one very sweetly . He was very welcoming and sweet. He told us about curriculum and distribution of marks in exams . He teaches us chemistry also in a very good manner. It was my favourite class till date of my college joining.
@@ -88,5 +95,13 @@ Name : **Balkaran singh** , Branch : **cse**
 - Afetr the session Dr.Lakhvir Singh Khana , we got an energetic session by Dr.Arvind Dhingra. Due to shortage of time we cant't got an lecture by him . But sir promised us to give us lecture on any another day.
 # *End of Day 6*
 - The day was full of new information , excitement and energy . I enjoyed my chemistry class very much . The session by Sardar Gurcharan Singh Grewal is very amazing . We got highly motivated by that session.
+
+
+
+# **Day 7**
+- In the beginning of day 7 , we gathered in auditorium at 9:30 AM for our first lecture.
+# *Lecture by Dr.Amit Kamra (Incharge DMC)
+- At 9:30 AM we had our first lecture about Digital Marketing Club by Dr.Amit Kamra . He is incharge of DMC club. He explained us about his club . He shared his journey with us that how he had created the official page of GNDEC on instagram , facebook ,youtube . He also aware us about the importance of Digital Marketing in today's world. He gave us a task to make a video of college and best three videos will be awarded. He also showed us some videos made by the members of DMC club.
+# *Lecture by Dr.Parminder Singh (Dean Student Welfare)
 
 
