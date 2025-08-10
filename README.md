@@ -115,9 +115,15 @@ Name : **Balkaran singh** , Branch : **cse**
 
 
 # **Day 8**
-- In the beginning of day , we gathered in TCC seminar hall for a expert lecture by *Mrs.Shaffy Makkar* on "Millets Super Food" . She made us aware about benefits of millets . She addressed us that how millets can be solution of many health problems. She told us cancer can also be cured by millets by adding them in our daily diet . She also guided us the way to prepare millets. The whole session was very interesting and amazing . Her nature was very welcoming and heartwarming . I enjoyed the session very much. The session held from 9:00 AM to 10:30 AM.
+- In the beginning of day , we gathered in TCC seminar hall for a expert lecture by **Mrs.Shaffy Makkar** on "Millets Super Food" . She made us aware about benefits of millets . She addressed us that how millets can be solution of many health problems. She told us cancer can also be cured by millets by adding them in our daily diet . She also guided us the way to prepare millets. The whole session was very interesting and amazing . Her nature was very welcoming and heartwarming . I enjoyed the session very much. The session held from 9:00 AM to 10:30 AM.
 - After the lecture of Mrs.Shaffy Makkar , we had our maths lecture by Prof.Gagandeep Kaur Lotey  from 10:30 AM to 12:00 NOON. It was my first maths lecture . Mam's nature was very sweet and energetic. She asks us very interseting maths questions to summarise our memory . The whole lecture was very interesting nad fun.
 # *End of Day 8*
 - The day was full of new information , excitement and energy . I enjoyed my maths class very much . The session by Mrs.Shaffy Makkar on Millets Super Food is very amazing . We got highly motivated by that session.
+
+
+
+# *MY OVERALL EXPERIENCE**
+My experience at Guru Nanak Dev Engineering College is truly enriching. From the warm welcome during the induction program to the engaging classes, I felt a sense of belonging. Interacting with seniors and peers broadened my perspective, and I made some wonderful friends. Faculty members were supportive and knowledgeable, guiding us through complex concepts. The campus infrastructure was impressive, with state-of-the-art facilities and a serene environment. Library resources were vast and helpful, providing access to a wide range of books and journals. I discovered new interests and passions, exploring areas I never thought I'd enjoy. College events fostered creativity, allowing us to express ourselves through art, music, and drama. The experience was not just about academics; it was about personal growth and development. I learned to manage my time effectively. Overall, it was a transformative experience, shaping my academic and personal growth in ways I never thought possible. The college has become a second home . The experience has motivated me to work harder, pursue my passions, and strive for excellence. With a newfound sense of purpose and direction, I'm ready to take on new challenges and make the most of my time at GND Engineering College. The journey ahead promises to be exciting, and I'm eager to see what the future holds.
+
 
 
