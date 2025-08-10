@@ -44,7 +44,7 @@ Name : **Balkaran singh** , Branch : **cse**
 ## *About Github (3:30 to 4:30 PM)*
 - After the lecture of Dr. Arashdeep Singh, Our seniors explains very evidently about Github and how to use it. They all were very welcoming and heartwarming. They explains and make us understand that how can we make our presentation about induction on github.
 # *End of Day 2*
-- The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerising . I am hoping that upcoming days will be more imformative and i am  also excited about more interactive sessions.
+- The Day 2 of induction programme came to an end. It was as much as informative as the Day 1 . I enjoyed a lot in the lecture by Dr. Arashdeep singh, he was very mesmerising . I am hoping that upcoming days will be more imformative and i am also excited about more interactive sessions.
 
 
 
@@ -109,7 +109,15 @@ Name : **Balkaran singh** , Branch : **cse**
 - After all three lectures we got a break from 12:30 to 1:30 PM.
 # *BEEE Lecture and Maths Lecture*
 - After the break , we attend our BEEE lecture from 1:30PM to 2:30PM . It was my second BEE class . Mam stared our first unit of BEEE . I understand every thing tought by her . She teaches very well . The lecture over at 2:30 PM. After the lecture of BEEE , we go to our class to attend maths lecture . But due to absence of mam our seniors take our lecture . They taken our introduction . The whole one hour was very fun . I enjoyed that 1 hour the most till my first day of college. After that , we dismissed.
-# *End od Day 7*
+# *End of Day 7*
 - I ended the day with full enjoyment . My first and last lecture of today's are favourite . I get to gain a lot of information today as well . Each day coming with a lot of excitement and information . I hope that I will enjoy the upcoming days as well.
+
+
+
+# **Day 8**
+- In the beginning of day , we gathered in TCC seminar hall for a expert lecture by *Mrs.Shaffy Makkar* on "Millets Super Food" . She made us aware about benefits of millets . She addressed us that how millets can be solution of many health problems. She told us cancer can also be cured by millets by adding them in our daily diet . She also guided us the way to prepare millets. The whole session was very interesting and amazing . Her nature was very welcoming and heartwarming . I enjoyed the session very much. The session held from 9:00 AM to 10:30 AM.
+- After the lecture of Mrs.Shaffy Makkar , we had our maths lecture by Prof.Gagandeep Kaur Lotey  from 10:30 AM to 12:00 NOON. It was my first maths lecture . Mam's nature was very sweet and energetic. She asks us very interseting maths questions to summarise our memory . The whole lecture was very interesting nad fun.
+# *End of Day 8*
+- The day was full of new information , excitement and energy . I enjoyed my maths class very much . The session by Mrs.Shaffy Makkar on Millets Super Food is very amazing . We got highly motivated by that session.
 
 
