@@ -122,7 +122,7 @@ Name : **Balkaran singh** , Branch : **cse**
 
 
 
-# *MY OVERALL EXPERIENCE**
+# *MY OVERALL EXPERIENCE*
 My experience at Guru Nanak Dev Engineering College is truly enriching. From the warm welcome during the induction program to the engaging classes, I felt a sense of belonging. Interacting with seniors and peers broadened my perspective, and I made some wonderful friends. Faculty members were supportive and knowledgeable, guiding us through complex concepts. The campus infrastructure was impressive, with state-of-the-art facilities and a serene environment. Library resources were vast and helpful, providing access to a wide range of books and journals. I discovered new interests and passions, exploring areas I never thought I'd enjoy. College events fostered creativity, allowing us to express ourselves through art, music, and drama. The experience was not just about academics; it was about personal growth and development. I learned to manage my time effectively. Overall, it was a transformative experience, shaping my academic and personal growth in ways I never thought possible. The college has become a second home . The experience has motivated me to work harder, pursue my passions, and strive for excellence. With a newfound sense of purpose and direction, I'm ready to take on new challenges and make the most of my time at GND Engineering College. The journey ahead promises to be exciting, and I'm eager to see what the future holds.
 
 
